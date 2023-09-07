@@ -13,3 +13,4 @@ Sharing the panel with the renowned Deepak Chopra was an unforgettable experienc
 While the event may have passed, the impact of our discussions continues to resonate. The exploration of #consciousness, empathy in the realm of technology, and the potential for artificial consciousness remain ever-relevant and thought-provoking topics.
 
 Let's continue to explore the uncharted territories of knowledge and possibility, shaping the future together. Stay tuned for more exciting conversations and discoveries on the horizon!
+
